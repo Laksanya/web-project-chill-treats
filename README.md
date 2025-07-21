@@ -1,0 +1,1 @@
+Chill Treats isn’t just an imaginary brand—it’s a reflection of the warmth, joy, and flavor that ice cream brings into our lives. the shop offers over 30 handcrafted flavors, from Caramel Belgian to Luxurious Coconut Pistachio. I designed a website that captures this variety and vibrancy, offering users a delightful digital experience.
